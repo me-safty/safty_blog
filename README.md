@@ -1,0 +1,1 @@
+# safty_blog
